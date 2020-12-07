@@ -6,3 +6,5 @@ Archive of weekly Google-Analytics updates for Awareness Committee meetings
 
 [Week of 23-29](https://docs.google.com/presentation/d/1v9Ut1zSIIoMZrNPzlVICGHsvDATZNhQwdYVYhWoZDkk/edit?usp=sharing)
 
+### December 2020
+[Week of November 30-December 6](https://docs.google.com/presentation/d/1c4Y9Gxdui16oVqP7VpRksogK3XdwOyGOe0GOV8IR3wA/edit?usp=sharing)
