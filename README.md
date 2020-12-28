@@ -11,4 +11,6 @@ Archive of weekly Google-Analytics updates for Awareness Committee meetings
 
 [Week of 7-13](https://docs.google.com/presentation/d/1bW0SHkY-WzdwYYM0FEZnsvJH_Jtlm5ZFQXe4jXeGyIc/edit?usp=sharing)
 
-[Week of 14-20](https://docs.google.com/presentation/d/19_82ZAcqp2m8J9q-X_f_0d5FLv4XMzsYJgosQ9UinIQ/edit?usp=sharing)
+[Week of 14-20](https://docs.google.com/presentation/d/1t1moWzTPAaRlGQPWlQwoKNvEXMKt9r6YS2hIJrvezZo/edit?usp=sharing)
+
+[Week of 21-27](https://docs.google.com/presentation/d/19_82ZAcqp2m8J9q-X_f_0d5FLv4XMzsYJgosQ9UinIQ/edit?usp=sharing)
